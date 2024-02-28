@@ -12,3 +12,8 @@
 
 https://github.com/zephirumwest/waterMelonGame/assets/111879138/a55481d2-e377-4b4e-8685-a80678644290
 
+플레이영상2 니케 버전  <br/>
+
+
+https://github.com/zephirumwest/waterMelonGame/assets/111879138/fc95b0a7-caba-417a-b673-1e697cea8876
+
